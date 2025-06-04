@@ -1,0 +1,17 @@
+https://github.com/Ivan010619/MANGAADDICT/raw/refs/heads/main/A-Team_Ch.101.cbz
+https://github.com/Ivan010619/MANGAADDICT/raw/refs/heads/main/A-Team_Ch.102.cbz
+https://github.com/Ivan010619/MANGAADDICT/raw/refs/heads/main/A-Team_Ch.103.cbz
+https://github.com/Ivan010619/MANGAADDICT/raw/refs/heads/main/A-Team_Ch.104.cbz
+https://github.com/Ivan010619/MANGAADDICT/raw/refs/heads/main/A-Team_Ch.105.cbz
+https://github.com/Ivan010619/MANGAADDICT/raw/refs/heads/main/A-Team_Ch.106.cbz
+https://github.com/Ivan010619/MANGAADDICT/raw/refs/heads/main/A-Team_Ch.107.cbz
+https://github.com/Ivan010619/MANGAADDICT/raw/refs/heads/main/A-Team_Ch.108.cbz
+https://github.com/Ivan010619/MANGAADDICT/raw/refs/heads/main/A-Team_Ch.109.cbz
+https://github.com/Ivan010619/MANGAADDICT/raw/refs/heads/main/A-Team_Ch.110.cbz
+https://github.com/Ivan010619/MANGAADDICT/raw/refs/heads/main/A-Team_Ch.111.cbz
+https://github.com/Ivan010619/MANGAADDICT/raw/refs/heads/main/A-Team_Ch.112.cbz
+https://github.com/Ivan010619/MANGAADDICT/raw/refs/heads/main/A-Team_Ch.113.cbz
+https://github.com/Ivan010619/MANGAADDICT/raw/refs/heads/main/A-Team_Ch.114.cbz
+https://github.com/Ivan010619/MANGAADDICT/raw/refs/heads/main/A-Team_Ch.115.cbz
+https://github.com/Ivan010619/MANGAADDICT/raw/refs/heads/main/A-Team_Ch.116.cbz
+https://github.com/Ivan010619/MANGAADDICT/raw/refs/heads/main/A-Team_Ch.117.cbz
